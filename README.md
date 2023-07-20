@@ -5,7 +5,7 @@ Dedicated to learning, collaborating, and contributing to the open-source commun
 
 
 ♥️ I enjoy writing  codes and sarcasm. <br/>
-📫 How to reach me: [email](dev.maryviann03@gmail.com), [twitter](https://www.twitter.com/maryvianie_) <br/>
+📫 How to reach me: [email](maryviann03@gmail.com), [twitter](https://www.twitter.com/maryvianie_) <br/>
 💬 Ask me about anything!: <br/>
 
 
